@@ -8,4 +8,5 @@ Please see the Wiki page for more details on the project.
 
 The code will be uploaded within the next week or so.  
 
-![340124506-aa51310f-b46a-4c42-a364-a559b0249807](https://github.com/user-attachments/assets/35aa68bd-a19c-4ae4-9af2-8a7fea226b35)
+![340124506-aa51310f-b46a-4c42-a364-a559b0249807](https://github.com/user-attachments/assets/e47ca87d-2e1f-4459-9c3e-672e2203cfc9)
+
